@@ -16,7 +16,7 @@
 
 ## 📫 Let's Connect!
 - 🔗 [LinkedIn] : (https://www.linkedin.com/in/anant-mukherjee-954b27367/)
-- 📧 [Email] : (anantm.ch@gmail.com)
+- 📧 [Email] : (anant.mukherjee.ch@gmail.com)
 
 ---
 
